@@ -1,0 +1,2 @@
+# GameWalkthroughCollection
+Game walkthrough collection
