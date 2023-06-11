@@ -10,3 +10,7 @@ Game walkthrough collection
 [otomegame-capture.com](https://otomegame-capture.com)  
 [game-kouryaku.info](https://game-kouryaku.info)  
 [seiya-saiga.com](https://seiya-saiga.com/)  
+[irorin.x0.to/erogame](http://irorin.x0.to/erogame/)  
+[sagaoz.net](http://sagaoz.net)  
+[www.eonet.ne.jp/~you-m/games](http://www.eonet.ne.jp/~you-m/games/)  
+[swat001jp.web.fc2.com](http://swat001jp.web.fc2.com) 已失效。  
