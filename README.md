@@ -9,3 +9,4 @@ Game walkthrough collection
 [desertrain.sakura.ne.jp/kouryaku](http://desertrain.sakura.ne.jp/fr_index.html)  
 [otomegame-capture.com](https://otomegame-capture.com)  
 [game-kouryaku.info](https://game-kouryaku.info)  
+[seiya-saiga.com](https://seiya-saiga.com/)  
